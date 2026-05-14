@@ -1,4 +1,4 @@
-#  
+#  Experience sol's rng like never before with sol's rng vip Script, the #1 Script. Includes invisibility and private server access for unbeatable
 
 
 
